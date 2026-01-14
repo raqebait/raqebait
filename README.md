@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=f4495a&label=presents)  
 <img width="744" height="534" alt="Untitled835_20260113202652" src="https://github.com/user-attachments/assets/defd4149-21cc-4987-8493-254807861370" />  
 
 [<img width="403" height="136" alt="Untitled837_20260113211515" src="https://github.com/user-attachments/assets/b7311053-5850-44ff-8c70-695762d93e33" />](https://soapchugger.atabook.org/)  
