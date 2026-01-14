@@ -7,6 +7,4 @@
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="403" height="136" alt="Untitled837_20260113211645" src="https://github.com/user-attachments/assets/eadf9faf-87ac-43dc-822a-687dff21d775" />  
 
-
-  
 <img width="744" height="534" alt="Untitled835_20260113203524" src="https://github.com/user-attachments/assets/efe63941-f8a6-4c1b-83c7-8b8a1e1373e9" />
