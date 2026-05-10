@@ -19,4 +19,4 @@
 
 </div>  
 
-discord: @candycoatedfury
+discord: @candycoatedfury , rblx: @nxcrokitty
