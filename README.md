@@ -1,6 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=rudiekin&style=plastic&color=f4495a&label=presents)  
-<img width="1000" height="500" alt="Untitled835_20260113202652" src="https://github.com/user-attachments/assets/defd4149-21cc-4987-8493-254807861370" />  
-[<img width="403" height="136" alt="Untitled837_20260113211515" src="https://github.com/user-attachments/assets/b7311053-5850-44ff-8c70-695762d93e33" />](https://soapchugger.atabook.org/)  
-    
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="403" height="136" alt="Untitled837_20260113211645" src="https://github.com/user-attachments/assets/eadf9faf-87ac-43dc-822a-687dff21d775" />  
-<img width="1000" height="500" alt="Untitled835_20260113203524" src="https://github.com/user-attachments/assets/efe63941-f8a6-4c1b-83c7-8b8a1e1373e9" />
+[![atabook](https://cdn.discordapp.com/attachments/1410870853201035298/1502889255566053416/Untitled878_20260510002340.png?ex=6a015a30&is=6a0008b0&hm=eac5c66824fbd56eb81bc43f52caf00836c9ac8155503194f98b77c16cdd9c1d&animated=true)](https://soapchugger.atabook.org/)
+
