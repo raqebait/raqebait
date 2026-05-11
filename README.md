@@ -23,5 +23,5 @@ discord: candycoatedfury , rblx: nxcrokitty
 
 </div>
 
-check out my pinterest 4 my art... pleas... [pinterest](https://pin.it/gZtCm0DSJ)
+# check out my pinterest 4 my art... pleas... [pinterest](https://pin.it/gZtCm0DSJ)
 
