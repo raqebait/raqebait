@@ -20,4 +20,7 @@
 </div>  
 
 discord: candycoatedfury , rblx: nxcrokitty
+
+</div>
+
 check out my pinterest 4 my art... pleas...
