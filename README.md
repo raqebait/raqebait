@@ -19,4 +19,5 @@
 
 </div>  
 
-discord: @candycoatedfury , rblx: @nxcrokitty
+discord: candycoatedfury , rblx: nxcrokitty
+check out my pinterest 4 my art... pleas...
