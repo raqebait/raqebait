@@ -6,7 +6,7 @@
 
 <div align=center>  
 
-<img width="319" height="19" alt="b38abdfe" src="https://github.com/user-attachments/assets/c9dafa13-c352-4651-838a-1b9b83ce7ecf" />
+<img width="319" height="19" alt="b38abdfe" src="https://github.com/user-attachments/assets/c9dafa13-c352-4651-838a-1b9b83ce7ecf"/>
 
 </div>  
 
