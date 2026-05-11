@@ -16,7 +16,6 @@
 
 <img width="338" height="42" alt="792cb543" src="https://github.com/user-attachments/assets/f6a3d00b-4b23-4a72-b4b2-6488ce0537ae"/>
 
-
 </div>  
 
 discord: candycoatedfury , rblx: nxcrokitty
