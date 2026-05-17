@@ -22,4 +22,4 @@ discord: candycoatedfury , rblx: nxcrokitty
 
 </div>
 
-(MY PONYTOWN ACC IS CURRENTLY BANNED FOR 3 DAYS,, I WILL BE BACK)
+(MY PONYTOWN ACC IS CURRENTLY BANNED FOR 2 DAYS,, I WILL BE BACK)
