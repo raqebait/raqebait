@@ -18,7 +18,7 @@ discord: candycoatedfury , rblx: nxcrokitty
 
 
 # check out my pinterest 4 my art... pleas... [pinterest](https://pin.it/gZtCm0DSJ)
-(send art reqs 2 my ata and i might draw them and post them here !!! ^_^)
+(send art reqs 2 my ata/straw and i might draw them and post them here !!! ^_^)
 
 </div>
 
