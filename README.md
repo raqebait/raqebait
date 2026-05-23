@@ -22,4 +22,4 @@ discord: candycoatedfury , rblx: nxcrokitty
 
 </div>
 
-# MY PONYTOWN ACCOUNT WAS BANNED FOR 5 DAYS, PLEASE ADD MY DISCORD IF U WANTED TO BE FRIENDS 💔💔
+# MY PONYTOWN ACCOUNT WAS BANNED FOR 5 DAYS.. ill be back soon....
