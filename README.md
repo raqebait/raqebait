@@ -17,7 +17,10 @@ discord: candycoatedfury , rblx: nxcrokitty
 <div align=center>
 
 
-# check out my pinterest 4 my art... pleas... [CLICK HERE!!!](https://pin.it/gZtCm0DSJ)
+# check out my pinterest 4 my art... pleas... 
+
+# [CLICK HERE!!!](https://pin.it/gZtCm0DSJ)
+
 (send art reqs 2 my ata/straw and i might draw them and post them here !!! ^_^)
 
 (remaking straw)
