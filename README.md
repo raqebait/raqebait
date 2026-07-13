@@ -21,9 +21,9 @@ discord: candycoatedfury , rblx: nxcrokitty
 
 # [CLICK HERE!!!](https://pin.it/gZtCm0DSJ)
 
-(send art reqs 2 my ata/straw and i might draw them and post them here !!! ^_^)
+(send art reqs 2 my ata and i might draw them and post them here !!! ^_^)
 
-(remaking straw)
+(i dont play dw / support qwelver)
 </div>
 
 
