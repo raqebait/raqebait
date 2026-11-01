@@ -19,7 +19,7 @@ discord: raqebait , tt: raqeba1t
 
 # check out my pinterest 4 my art... pleas... 
 
-# [CLICK HERE!!!](https://pin.it/gZtCm0DSJ)
+# [CLICK HERE!!!]([(https://pin.it/2kfTrq5fB])
 
 (send art reqs 2 my ata and i might draw them and post them here !!! ^_^)
 
